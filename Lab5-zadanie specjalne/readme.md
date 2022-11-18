@@ -1,0 +1,1 @@
+Nie do końca udany model(trochę za bardzo pokroiłem go w blenderze), ale myślę, że jak na pierwszy raz to nie tak źle.
